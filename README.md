@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nice-nicole
-- 👀 I’m interested in everything that might be interested
+- 👀 I’m interested in everything that might be interesting
 - 🌱 I’m currently learning UX/Design
 - 💞️ I’m looking to collaborate on cool projects
 - 📫 How to reach me by email:nicenicole.in@gmail.com
